@@ -13,6 +13,6 @@
 
 
 
-## 📫 Conectemos!
+## 📫 Conectémos!
 
 - [LinkedIn](https://www.linkedin.com/in/vanessacuencamontero/)
